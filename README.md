@@ -1,3 +1,3 @@
 # CRTEK
 youtube chanel content
-github chanel
+github chanel 
